@@ -5,7 +5,7 @@
 
 - 💬 Ask me anything about **my projects.**
 
-- 📫 How to reach me **shalinishalutiwari.1@gmail.com**
+- 
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
